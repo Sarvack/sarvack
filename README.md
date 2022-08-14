@@ -7,4 +7,4 @@
 - 💬 Ask me about everything
 - 📫 How to reach me: [Instagram](https://www.instagram.com/adesarva/)
 - 😄 Pronouns: Her/She
-- ⚡ Fun fact: i guess i'm loved <3
+- ⚡ Fun fact: Best Lucks <3
